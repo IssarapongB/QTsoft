@@ -5,7 +5,7 @@ Project HTML Website for Quality Software
 
 <br>
 
-[![1.jpg](https://i.postimg.cc/yN3Tgb9s/1.jpg)](https://postimg.cc/XZ35txQz)
+[![1.jpg](https://i.postimg.cc/RFFJJ32f/1.jpg)](https://postimg.cc/yJM8wN1Y)
 
 
 
